@@ -1,0 +1,11 @@
+- 👋 Hi, I’m Jason,the Gr8fulDude
+- 👀 I love photography as well filmaking
+- 🌱 I'm trying to find an affordable way to mint and market 
+- 👺👺 crypto art projects by my wife and I. 
+- 👁️ would love to expand to broadcasting artistic projects made by
+-🦉🦥 other creators and form a self governing community of like minded 
+-🤟🤟 creators in an atmosphere of freedom,positivity,creativity and complete
+-🤯🌚 acceptance. Move the community to create a token that could be used to buy,hold and sell on the market but
+-😁🤗 could be staked with a creator who would be fundraising for a project. The staked tokens generate LP tokens as well as new tokens daily
+-🤳🤳 that go to find the creators project. 
+DigitalDuder
